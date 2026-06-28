@@ -1,4 +1,4 @@
-# 
+# Elite bitmex trading bot predefinições for Mac OS | VIP bitmex trading bot predefinições for PC Windows. Featuring API de exchange centralizada and análise de momento — optimized for maximum performance.
 
 
 
